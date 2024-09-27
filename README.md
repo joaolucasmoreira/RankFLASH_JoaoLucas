@@ -1,1 +1,1 @@
-"Minhas sugest‰es FLASH RANK" 
+"Minhas sugest√µes FLASH RANK" 
